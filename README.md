@@ -1,6 +1,6 @@
 
 <div align="center">
-    <img src="https://count.getloli.com/get/@:sfwnks?theme=rule34" alt=":sfwnks" />
+    <img src="https://count.getloli.com/get/@:covershu?theme=rule34" alt=":covershu" />
 </div>
 
 <p align="center">
